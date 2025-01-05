@@ -19,7 +19,7 @@ My goal is to become one of the **world's greatest SEO specialists** while expan
 - **Performance Marketing Techniques**  
 
 ### 📈 Let's Connect:
-- **LinkedIn**: [Ayaz Aftab](https://linkedin.com/in/your-profile)  
-- **Email**: your-email@example.com  
+- **LinkedIn**: [Ayaz Aftab]https://www.linkedin.com/in/ayaz-aftab-01b033112  
+- **Email**: ayazaftab9@gmail.com
 
 > “Success is not the key to happiness. Happiness is the key to success.”
